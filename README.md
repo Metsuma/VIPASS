@@ -1,2 +1,2 @@
 # VIPASS
-Porfa denme un vip pass UwU
+Porfa denme un geek pass UwU
